@@ -168,3 +168,4 @@ Add your name and Twitter handle. 🐦
 - Paolo Urciullo 🎢🐱‍👤 => Twitter: [@paolo__init__](https://twitter.com/paolo__init__) 👍
 - Syed Hamza Hoda 🎢🐱‍👤🚀💡👍
 - Usman Dan abdullah => Twitter:[@UsmanDanAbdull1](https://twitter.com/UsmanDanAbdull1)
+<p> -Chulindra Rai 🤟↪↪ => Twitter:<a href="https://https://np.linkedin.com/in/chulindra-rai-a51308206">@Chulindra Rai</a></p>🙏
